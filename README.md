@@ -6,3 +6,5 @@ IniAbasi Bassey: I love reality tv shows
 Pramithas: I am a supertaster!
 
 Abisa Osei-Amankwah: I play piano!
+
+Tony: I like to swim!
